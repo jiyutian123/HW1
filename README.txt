@@ -1,2 +1,0 @@
-Yutian Ji
-Dodgers
